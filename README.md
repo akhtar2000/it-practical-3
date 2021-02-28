@@ -1,1 +1,0 @@
-# it-practical-3
